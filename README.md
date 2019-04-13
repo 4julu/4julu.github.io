@@ -1,4 +1,4 @@
-# 4julu.github.io
+# COMING SOON!
+# mr-ajulu.github.io
 Personal Website | Portfolio | Personal Brand | Resume | CV | Blog | Personal
 
-# COMING SOON
